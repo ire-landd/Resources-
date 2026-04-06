@@ -18,6 +18,8 @@ p.s if ur the creator of any of this and dont want it here just dm me! @apawcaly
 
 https://www.glitter-graphics.com
 
+https://watermelon.crd.co
+
 https://blinkies.cafe
 
 https://rentry.co/quain?utm_source=Pinterest&utm_medium=organic
