@@ -4,7 +4,7 @@
 
 10+ 𝘭𝘪𝘯𝘬𝘴! <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/680/680422zamyuom3mf.gif" width=401 height=332 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
 
-
+[update log!🍓](https://updatelog4resources.straw.page)
 
 NONE OF THIS IS MADE BY ME!!! ALL CREDITS GO TO THE RIGHTFUL OWNERS <33
 
